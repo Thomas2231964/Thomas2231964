@@ -3,3 +3,5 @@
 - 🌱 I’m currently learning how to access currency 💲
 - 💞️ I’m looking to collaborate on trading energy !
 - 📫 How to reach me at rapmobrecords.5150@gmail.com
+
+
